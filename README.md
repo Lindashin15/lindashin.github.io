@@ -1,1 +1,1 @@
-# lindashin.github.io
+# lindashin
